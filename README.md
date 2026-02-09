@@ -11,8 +11,7 @@
 
 - 📫 How to reach me **Vanshbhatt049@gmail.com**
 
-- 📄 Know about my experiences [vv](vv)
-
+- 📄 Know about my experiences [Worked at adorebits as an seo expert and also managed intetrns]
 - ⚡ Fun fact **I’m a fast learner who treats every challenge like a puzzle waiting to be solved**
 
 <h3 align="left">Connect with me:</h3>
